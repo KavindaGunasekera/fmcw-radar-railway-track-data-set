@@ -1,0 +1,1 @@
+Readings were captured for a expansion gap

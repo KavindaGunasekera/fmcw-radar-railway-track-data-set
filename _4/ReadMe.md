@@ -1,0 +1,1 @@
+Readings were captured without a ballast displacement
